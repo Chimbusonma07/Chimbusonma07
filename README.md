@@ -1,4 +1,4 @@
-## Hello, I'm Chimbusonma
+## WELCOME TO MY PAGE!!!
 
 - 🌱 Computer Science major at Fisk University
 - 🥈 Sophomore
