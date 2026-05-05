@@ -1,8 +1,7 @@
 ## WELCOME TO MY PAGE!!!
 
 - 🌱 Computer Science major at Fisk University
-- 🥈 Sophomore
-- 📕 I love reading (fiction)!
+- 🥉 Junior
 
 
 ## 🌐 Socials:
